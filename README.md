@@ -190,7 +190,7 @@ Community contributions are welcome.
 
 **Rusheel Sharma**
 GitHub: https://github.com/Rusheel86
-LinkedIN : https://www.linkedin.com/in/rusheel-sharma-0a8b70280/
+LinkedIN : https://www.linkedin.com/in/rusheel-sharma/
 
 ---
 
